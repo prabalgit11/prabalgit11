@@ -5,10 +5,6 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=prabalgit11&label=Profile%20views&color=0e75b6&style=flat" alt="prabalgit11" /> </p>
 
-- 🔭 I’m currently working on **Blog Website**
-
-- 🌱 I’m currently learning **Operating System**
-
 - 💬 Ask me about **C++, MEARN**
 
 - 📫 How to reach me **pratapsinghprabal15@gmail.com**
