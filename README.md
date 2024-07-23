@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **pratapsinghprabal15@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1DgCpDiWvOQRKAmmSvGzbUJ0mnbd3ya3y/view](https://drive.google.com/file/d/1DgCpDiWvOQRKAmmSvGzbUJ0mnbd3ya3y/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1KvCEX9OD6TqxM065FMrYay7UHm0zPniv/view?usp=sharing]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
